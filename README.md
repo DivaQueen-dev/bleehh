@@ -1,6 +1,6 @@
 
 <details>
- <summary>STAMPS!</summary>
+ <summary>STAMPS!!!!!</summary>
 
 <img src="https://i.ibb.co/PzDQRmVS/d7hc8zl-ed429bba-94e4-4d93-a4b8-8669dbba734c.png" width="99" height="56">
 <img src="https://i.ibb.co/svyBXQHQ/d2jx3kt-5e396c5e-5f90-4b3e-90e8-c3567d6a9c23.png" width="99" height="56">
